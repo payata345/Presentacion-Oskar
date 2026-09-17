@@ -1,3 +1,5 @@
+<img width="1920" height="1080" alt="hugo-renedo-y-oskar-argudo-en-el-podio-de-tarifa" src="https://github.com/user-attachments/assets/c4ebd09e-18da-42e9-be9d-a4f942915386" />
+<img width="1920" height="1080" alt="hugo-renedo-y-oskar-argudo-en-el-podio-de-tarifa" src="https://github.com/user-attachments/assets/7bcc02bd-f4d2-4598-b445-ef3ad60cd9dd" />
 # Oskar Argudo Carnicer
 
 ## Biografía
